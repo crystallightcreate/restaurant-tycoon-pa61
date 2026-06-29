@@ -1,4 +1,4 @@
-# 
+# Experience hooked like never before with hooked rare Scripts, the #1 Script. Includes no clip and anti-ban for unbeatable performance.
 
 
 
